@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Marekuran
 - 👀 I’m interested in: not failing programming class
 - 🌱 I’m currently learning: speaking
-- 💞️ I’m looking to collaborate on: huh
+- 💞️ I’m looking to collaborate on: war crimes
 - 📫 How to reach me: u can try lmao
 - 😄 Pronouns: 9/11
 - ⚡ Fun fact: I know shit about programming
